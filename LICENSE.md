@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with top nft floor sweeper bot | rarity-analysis + mint-detection, the #1 nft floor sweeper bot. Includes rarity-analysis and mint-detection for a faster
 
 
 
